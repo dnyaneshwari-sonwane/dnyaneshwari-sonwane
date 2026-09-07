@@ -82,7 +82,7 @@ daily habits, streaks, and progress.
 
 ## 📫 Connect With Me
 
-🔗([LinkedIn](https://www.linkedin.com/in/dnyaneshwari-sonwane-33089a332/))
+🔗 [LinkedIn](https://www.linkedin.com/in/dnyaneshwari-sonwane-33089a332/)
 
 🔗 [GitHub](https://github.com/dnyaneshwari-sonwane)
 
